@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...I'm really unclear right now
 - 📫 How to reach me ... ???
 - 😄 Pronouns: ...she,her
-- ⚡ Fun fact: ...I am just coming back to the work force afterbing out for almost three years healing from two traumatic brain injuries.
+- ⚡ Fun fact: ...I am coming back to the work force after being out for almost three years healing from two traumatic brain injuries.
 
 <!---
 peachez2eat/peachez2eat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
